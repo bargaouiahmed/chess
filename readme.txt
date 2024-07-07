@@ -1,0 +1,1 @@
+In planning i opted to plano only the elements that i improvised in as the remaining components are self explanatory
